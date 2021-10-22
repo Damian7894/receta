@@ -1,0 +1,1 @@
+saca dos panes de donde los tengas con pones uno luego pon jamon o pollo etc queso guacamole tomate y luego un poco de lechuga haciendo una torre y al fial un pan 
